@@ -1,1 +1,1 @@
-# Vespucci White Paper
+# Vespucci White and Green Papers
